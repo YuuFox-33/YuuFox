@@ -40,4 +40,4 @@ Most engineering students simulate. I build, fly, and break things.
 
 ---
 
-📧 ayushbirh@gmail.com · [LinkedIn]([https://linkedin.com/in/AyushBirhmaan](https://www.linkedin.com/in/ayush-birhmaan-19172a277/))
+📧 ayushbirh@gmail.com · 
